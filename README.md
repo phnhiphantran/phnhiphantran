@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @phnhiphantran
+- 👀 I’m interested in Chemistry
+- 🌱 I’m currently learning Chemical Engineering
+- 📫 How to reach me: Facebook, Instagram
+- - 😄 Pronouns: Happy
+- ⚡ Fun fact: I'm interesting at coding
